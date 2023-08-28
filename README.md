@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Hi, I’m Andryshka      
 
 🔭 I’m open to collaboration
 <br>
